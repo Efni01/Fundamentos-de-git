@@ -2,3 +2,4 @@
 Kinder T. Loaiza
 Primaria Lic Benito Juarez. Guasave
 Secundaria Tecnica Num#45
+Cobaes67
